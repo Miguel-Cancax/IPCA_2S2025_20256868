@@ -1,0 +1,2 @@
+# IPCA_2S2025_20256868
+Proyecto 1 IPC1
